@@ -1,2 +1,2 @@
 # Papierskaliert
-Literatur (deutsch)
+Literatur (auf Deutsch)
